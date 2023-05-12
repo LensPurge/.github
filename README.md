@@ -2,6 +2,6 @@
 
 ## 💪 Our Motivation
 
-## 𝌣 The Solution
+## ✅ The Solution
 
 ## 🎬 Presentation
