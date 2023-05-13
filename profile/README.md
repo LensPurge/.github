@@ -1,4 +1,4 @@
-# LensPurge
+# minimalens
 
 ## 💪 Our Motivation
 
